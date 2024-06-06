@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning code
 - ----
 - 📫 How to reach me 
-- 😄 Pronouns: Cu7Tan
+- 😄 Pronouns: BACHACU
 - ⚡ Fun fact: Tân7Cú rất yêu động vật.
 - Contact my FB: https://www.facebook.com/tan.hurican/
 <!---
